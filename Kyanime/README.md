@@ -1,2 +1,2 @@
-# Kyanime
+# EL Rincon del Otaku
  
